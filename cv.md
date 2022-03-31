@@ -6,6 +6,7 @@ Email: mishkaten@gmail.com
 LinkedIn: https://www.linkedin.com/in/mishka-tenieshvili-b9532a197/
 
 About Me:
+
 • Winner of the “KIU Visual Math Fest 2021” with the project “Adventure In Math.” Category: developed from scratch, explained, exhibited.
 • Golden Medalist due to the highest grades in all of the High school subjects.
 • Was awarded the KIU Scholarship as one of the best performing universities students across all faculties based on academic achievement.
